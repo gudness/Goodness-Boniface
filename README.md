@@ -1,0 +1,2 @@
+# Goodness-Boniface
+I’m a technology enthusiast with a great passion for teaching. A resourceful and determine self-esteem, keen minded, focused, conscientious, highly motivated and  Introvert at heart, my core values are commitment and family. I’m more of a perfectionist, level headed under pressure and result oriented.  My aim in life is to impact lives, liberate businesses to the highest standard of digital age, and to be one of the tops known “Web developer” expert in the Nigeria.
